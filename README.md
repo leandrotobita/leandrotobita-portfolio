@@ -1,6 +1,6 @@
 # Portfólio de Leandro Tobita
 
-## Sobre Mim
+## Sobre Mim 
 
 Profissionalmente, sou altamente habilidoso em trabalhar em equipe, reconhecendo e respeitando a hierarquia imposta pela empresa. Tenho uma abordagem colaborativa, valorizando as perspectivas e contribuições de todos os membros da equipepara alcançar objetivos comuns. Além disso, sou capaz de me adaptar facilmente a ambientes de trabalho dinâmicos e tenho uma tranquilidade notável ao lidar com prazos curtos. A pressão não me desmotiva; pelo contrário, me motiva a entregar resultados de alta qualidade dentro do tempo estipulado.Sou autodidata por natureza e estou sempre buscando oportunidades para aprender e crescer profissionalmente. Minha curiosidade inerente me impulsiona a explorar novas abordagense a criar soluções inovadoras para os desafios que surgem nomeu caminho. Acredito firmemente que o aprendizado contínuo é essencial para o sucesso profissional e faço questão de me manter atualizado com as últimas tendências e desenvolvimentos na minha área de atuação. Além das minhas habilidades profissionais, sou uma pessoa divertida e otimista. Sempre procuro enxergar o lado positivo da vida, mesmo diante de adversidades. Tenho consciência deque todos enfrentamos problemas em algum momento, mas prefiro abordá-los com uma atitude positiva e determinação. Essa mentalidade me ajuda a manter um ambiente de trabalho saudável, inspirando meus colegas de equipe e ajudando a criar uma atmosfera colaborativa e motivadora.
 
