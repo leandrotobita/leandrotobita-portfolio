@@ -11,11 +11,11 @@ Este espaço representa um ponto crucial em minha trajetória como estudante no 
 
 ## Projetos em Destaque
 
-### Projeto 1: Em desenvolvimento....
+### Projeto 1: App Contagem de Produtos / Inventário
+### Projeto 2: Contator produtos NF-e (xml)
 
-- ** Descrição**:
-- ** Tecnologias**:
-- ** URL para o Repositório**
+
+ 
 
 ## Habilidades
 
